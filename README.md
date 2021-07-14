@@ -1,1 +1,0 @@
-# techaad.in
